@@ -21,11 +21,13 @@
 
 5. Dice the guanciale and add it to another pan in medium heat until golden/brown.
 
-6. When the linguine is ready, empty them in the pan with the guanciale and mix. Add the egg/cheese mix while stirring slowly.
+6. When the linguine is ready, empty them in the pan with the guanciale and mix. 
 
-7. Finally, serve them with a little more Parmiggiano and a little more pepper.
+7. Add the egg/cheese mix while stirring slowly.
 
-8. Enjoy!
+8. Finally, serve them with a little more Parmiggiano and a little more pepper.
+
+9. Enjoy!
 
 You can also watch it on [video](https://www.youtube.com/watch?v=dsg5H2TEQXs)
 
