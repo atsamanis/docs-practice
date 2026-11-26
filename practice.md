@@ -1,4 +1,4 @@
-# How to make authentic carbonara
+# How to make a carbonara
 
 ## Ingredients
 
