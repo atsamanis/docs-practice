@@ -1,8 +1,8 @@
-# How to make a carbonara
+# How to make carbonara
 
 ## Ingredients
 
-- Linguine
+- Half a pack of Linguine or pasta of your choice
 - 3 eggs
 - 300gr Parmiggiano Regiano
 - Salt
